@@ -15,8 +15,7 @@ Adicionem suas duplas:
 *
 
 ### Grupo 4
-* 
-*
+* Lucas Deolindo
 
 ### Grupo 5
 *
